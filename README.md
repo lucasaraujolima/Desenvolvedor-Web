@@ -1,3 +1,3 @@
 # Desenvolvedor Web
 
-Comentando as tags html
+Atividades faltando estão no classroom!!
